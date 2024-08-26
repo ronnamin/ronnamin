@@ -1,4 +1,6 @@
-**DNI**  :  *Okegomfan . Genshinfan
+Pro/comshippers can interact as long yall don't mention about comship often.
+
+**DNI**  : *Okegomfan . Genshinfan
 . HazbinHotelfan⠀++⠀⠀⠀⠀° ⠀⠀⠀+⠀⠀⠀⠀⠀⠀* : *Pedo . Racist . Homophobic*
 
  : *SH + SA Jokes . "Cut yourself" jokes
