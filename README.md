@@ -1,5 +1,5 @@
 **DNI**  :  *Okegomfan . Genshinfan
-. HazbinHotelfan⠀++⠀⠀⠀⠀° ⠀⠀⠀+⠀⠀⠀⠀⠀⠀Pedo . Racist . Homophobic* 
+. HazbinHotelfan⠀++⠀⠀⠀⠀° ⠀⠀⠀+⠀⠀⠀⠀⠀⠀* : *Pedo . Racist . Homophobic*
 
  : *SH + SA Jokes . "Cut yourself" jokes
 says shit about me n don't talk w me.*
