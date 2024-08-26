@@ -1,4 +1,4 @@
-**Pro/comshippers can interact as long yall don't mention about comship often.**
+**Pro/comshippers can interact as long yall don't mention about comship often, but i won't become a comshipper because of you.**
 
 **DNI**  : *Okegomfan . Genshinfan
 . HazbinHotelfan⠀++⠀⠀⠀⠀° ⠀⠀⠀+⠀⠀⠀⠀⠀⠀* : *Pedo . Racist . Homophobic*
