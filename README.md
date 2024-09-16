@@ -1,1 +1,1 @@
-![Texto Alternativo](https://files.catbox.moe/wjq3r7.png)
+![Pompompurin](https://files.catbox.moe/wjq3r7.png)
